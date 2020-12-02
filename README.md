@@ -44,7 +44,7 @@ Hao Lam
 * [LinkedIn](https://www.linkedin.com/in/hao-lam-0ba9744a/)
 
 Thomas Mitchell
-* 
+* mitcht032@yahoo.com
 * [GitHub](https://github.com/mitch-t)
 * [LinkedIn]()
 
